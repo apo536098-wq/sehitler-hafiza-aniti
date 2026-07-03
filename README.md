@@ -1,0 +1,2 @@
+# sehitler-hafiza-aniti
+Bayrakları bayrak yapan üstündeki kandır, Toprak eğer uğrunda ölen varsa vatandır.
