@@ -53,7 +53,7 @@ Bayrakları bayrak yapan üstündeki kandır, Toprak eğer uğrunda ölen varsa 
 <br>
 
 > <h3><em>"Bayrakları bayrak yapan üstündeki kandır,<br>Toprak eğer uğrunda ölen varsa vatandır."</em></h3>
-> <p><strong>— Mehmet Akif Ersoy</strong></p>
+> <p><strong>— </strong></p>
 
 <br>
 
